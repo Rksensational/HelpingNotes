@@ -1,1 +1,1 @@
-# HelpingNotes
+# My New Idea
